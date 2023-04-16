@@ -21,6 +21,6 @@ Przestałam być żoną, praca jako adwokat od dawna wywoływała jedynie stres 
 */edit: przez pierwsze niemalże 2 tygodnie wyzwania dopadł mnie covid i grypa jednocześnie, więc jestem zawiedziona, bo nie mogłam zrobić tego tak jak oczekiwałam/.*
 
 
-<br>--->  Zapraszam do
+<br>  Zapraszam do
 kontaktu 👋 [<img align="left" alt="linked-in" src="https://img.shields.io/badge/linkedin-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white" />](https://www.linkedin.com/in/marta-miecznikowska-1a8743258/)
 
